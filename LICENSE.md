@@ -1,4 +1,4 @@
-
+Enhance Adobe Photoshop for macOS with smart Extension for Adobe Photoshop for macOS - color correction and smart objects, the #1 extension. Includes color correction and smart
 
 
 
